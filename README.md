@@ -1,0 +1,1 @@
+# canon-selphy-cp-1500
